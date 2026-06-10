@@ -4,4 +4,4 @@
 
 i am still new 2 all of this pls dont throw tomatoes
 
-[<b>ata</b>](https://kichi.atabook.org/) [<b>straw</b>](https://kichimail.straw.page/)<br>
+[<b>ata</b>](https://kichi.atabook.org/) ⸝⸝ [<b>straw</b>](https://kichimail.straw.page/)<br>
