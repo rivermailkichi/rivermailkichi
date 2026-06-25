@@ -14,7 +14,7 @@
 
 $\color{#faaa39}{\text{im craving pizzas rn}}$
 
-[<b>ata</b>](https://kichi.atabook.org/) ⸝⸝ [<b>straw</b>](https://kichimail.straw.page/)<br>
+[<b>atabook</b>](https://kichi.atabook.org/) ⸝⸝ [<b>strawpage</b>](https://kichimail.straw.page/)<br>
 
 <div align="center">
 
